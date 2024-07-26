@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **manitejsriram05@gmail.com**
 
-- ⚡ Fun fact **Fun fact Roses are Red, Violets are Blue, An HTTP error,And a BSOD too!**
+- ⚡ Fun fact **Spiders are the only web developers in the world that enjoy finding bugs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
